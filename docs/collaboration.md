@@ -1,3 +1,1 @@
-hhdhdhdh
-haris
-giosue
+Collaboration requires clear communication and well-defined responsibilities.
